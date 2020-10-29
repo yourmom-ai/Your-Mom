@@ -1,2 +1,2 @@
 # Your-Mom
-You must be be bored if you're looking at random strangers' repositories
+You must be pretty bored if you're looking at random strangers' repositories
